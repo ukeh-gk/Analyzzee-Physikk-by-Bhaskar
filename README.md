@@ -1,0 +1,1 @@
+# Analyzzee-Physikk-by-Bhaskar
